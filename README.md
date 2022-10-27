@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @hb03
+- 👀 I'm interested in coding, soccer, food, board games, biking and hiking
+- 📫 How to reach me coding@hb03.de
